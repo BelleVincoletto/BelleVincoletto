@@ -9,6 +9,7 @@ Hobbies
 Pintura
 Leitura
 Assistir filmes
+Aprender novas línguas
 
 Habilidades Linguísticas
 Inglês: Avançado
